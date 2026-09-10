@@ -1,2 +1,0 @@
-# mangamanga
-vsjsfkfsjfs
